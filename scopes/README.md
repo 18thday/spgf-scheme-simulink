@@ -1,0 +1,1 @@
+Scopes are available by link: https://disk.yandex.ru/d/V778Du1WpQv1Lg
